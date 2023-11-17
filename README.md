@@ -6,3 +6,4 @@
 - ☕️ Aqui Compartilha 
 - 📧 [ @tamiojo_lua1w1Drawing account🎨✏️📒]- 
 Conecte-se comigo! 😊
+![](https://media.tenor.com/XKaKS-ZIOFwAAAAC/gojo-gojo-satoru.gif)
